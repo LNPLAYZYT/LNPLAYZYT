@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LNPLAYZYT
+- 👀 I’m interested in gamming,fnaf,guitars,metallica
+- 🌱 I’m currently learning how to play songs on a guitar
+- 💞️ I’m looking to collaborate on yt
+- 📫 How to reach me ln9312448@gmail.com
